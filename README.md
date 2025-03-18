@@ -1,16 +1,14 @@
-## Hi there 👋
 
-<!--
-**coincaserival/coincaserival** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://files.catbox.moe/kwgd1y.webp)
 
-Here are some ideas to get you started:
+* hai im micah.. u can also call me rex and dakota
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+* @masterrcyrus is my girlboyfriend and i love hyr dearly <333 i usually sit w/ them on pt so im on usually they are too!
+
+* nonsharing silver (pkmn) selfshipper and also im 15 lol
+
+* pokemon and pokepasta fan.. i like coin case rival and tarnished gold ALOT
+
+* theres more on my strawpage ummm proshipper freaks or under 14 dni i dont like interacting with 13 year olds
+
+![](https://files.catbox.moe/4hhil0.png)![](https://files.catbox.moe/m80490.png)![](https://files.catbox.moe/kk7wox.png)![](https://files.catbox.moe/m0eugr.png)
