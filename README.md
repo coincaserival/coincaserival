@@ -3,7 +3,7 @@
 
 * hai im micah.. u can also call me rex and dakota
 
-* @masterrcyrus is my girlboyfriend and i love hyr dearly <333 i usually sit w/ them on pt so im on usually they are too!
+* @sentientglitch is my girlboyfriend and i love hyr dearly <333 i usually sit w/ them on pt so im on usually they are too!
 
 * nonsharing silver (pkmn) selfshipper and also im 15 lol
 
